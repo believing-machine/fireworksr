@@ -1,1 +1,1 @@
-### Thingking Machine (fireworksr)
+### Believing Machine (fireworksr)
